@@ -4,7 +4,6 @@
 - 💞️ I’m looking to work with a company that values 15+ years in online marketing as an asset to have in their talent pool. 
 - 📫 How to reach me ... I'm on Whatsapp ✍🏼 https://wa.me/message/C2NQUFBAYFME    
 - ✍🏼 I'm on Telegram @nicolejolie 
-- 🤔 Get to know more about me ...
 - 👀 View my accomplishments here https://www.canva.com/design/DAEveJmtnUw/hKnqcpkXum1y70g4llm_6A/view?utm_content=DAEveJmtnUw&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
 - 📆 Schedule a call with me on https://LinkedIn.com/in/nicolejolie
 
