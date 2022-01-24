@@ -3,8 +3,9 @@
 - 🌱 I’m currently learning ... all of the telegrams, discords and from some of the most notable investors and traders to get a well-rounded perspective about how to engage with intelligence and integrity. 
 - 💞️ I’m looking to get hired for a  ... SEO Expert Marketing position working for a company that appreciates value and wants to get noticed above their competition. 
 - 📫 How to reach me ... I'm on Whatsapp ✍🏼 https://wa.me/message/C2NQUFBAYFME    ✍🏼 I'm on Telegram @nicolejolie 
-- 🤔 Get to know more about me ... https://sociallysmashing.com/reviews-be-socially-smashing-testimonials and 👀 View my accomplishments here https://www.canva.com/design/DAEveJmtnUw/hKnqcpkXum1y70g4llm_6A/view?utm_content=DAEveJmtnUw&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
-- 📆 Schedule a call with me ... https://calendly.com/sociallysmashing/customconsult
+- 🤔 Get to know more about me ...
+- 👀 View my accomplishments here https://www.canva.com/design/DAEveJmtnUw/hKnqcpkXum1y70g4llm_6A/view?utm_content=DAEveJmtnUw&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
+- 📆 Schedule a call with me on https://LinkedIn.com/in/nicolejolie
 
 <!---
 nljolie/nljolie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
